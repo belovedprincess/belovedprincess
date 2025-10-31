@@ -2,6 +2,6 @@
 
 <p align="center"> The princess has arrived, bow your heads to her highness Aurélie ♡
 
-<p align="center"> <img src="https://i.postimg.cc/3NN10zRw/Untitled478-20251030202216.png">
+<p align="center"> <img src="https://i.postimg.cc/XJ7ctt9c/Untitled498-20251030202349.png">
   
 <p align="center"> <img src="https://i.postimg.cc/pTDqtKSF/Untitled497-20251030200851.png" alt="darling" />
