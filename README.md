@@ -4,7 +4,7 @@
   
 <p align="center"> <img src="https://i.postimg.cc/D04sTh0Z/Untitled500-20251030202528.png">
 
-<p align="center">   . ۫    .  ➜   Hello darlings   ꣑ৎ
+<p align="center">　 　. ۫ 　　.  ➜　Hello darlings, I am Aurélie <3 I go by she/her and abrosexual. I adore the rococo/victorian era fashion, lolita style, and being a princess!　　　꣑ৎ
 
 ⠀
 <p align="center">:¨ ·.· ¨:
