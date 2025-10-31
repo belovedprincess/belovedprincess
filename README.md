@@ -8,6 +8,6 @@
 
 ⠀
 <p align="center">:¨ ·.· ¨:
-<p align="center">　`· . 𐙚
+<p align="center">`· . 𐙚
   
 <p align="center"> <img src="https://i.postimg.cc/pTDqtKSF/Untitled497-20251030200851.png" alt="darling" />
