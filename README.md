@@ -8,6 +8,8 @@
 
 <p align="center"> ౿　݁ 　.   I love giggling and kicking my feet when reading isekai manhwas! My favorite one by far is: "The Beloved Incompetent Stepmom." ૮₍ ´ ꒳ `₎ა  I lovelovelove super sonico, umamusume haru urara, aoi mukuo, ddlc monika, fluttershy, and alien stage sua. C+H and int will always be allowed, but if I don't respond back then I am most likely off tab!          ︵　　｡　˚
 
+<p align="center"> On the contrary, can this princess get you to follow her github? Hehe!
+
 <p align="center">:¨ ·.· ¨:
 <p align="center">`· . 𐙚
   
